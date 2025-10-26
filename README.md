@@ -52,7 +52,7 @@ Fueled by creativity, coffee, and consistency ☕💻
 ---
 
 ## 🤝 Let’s Connect  
-🌐 [LinkedIn](www.linkedin.com/in/cynthia-mwaura-756856306)  
+🌐 [LinkedIn](https://www.linkedin.com/in/cynthia-mwaura-756856306/)  
 🐦 [X (Twitter)]([https://twitter.com/your-link](https://x.com/CindyNjeri51806))  
   
 
